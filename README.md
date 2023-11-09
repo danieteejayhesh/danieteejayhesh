@@ -4,7 +4,7 @@ hey there, I'm dannytjh
 
 😄 My Pronouns: dan/bro/tan
 
-💼 any freelance work? do reach me at, 📫 [dannnytjh@gmail.com](mailto:dannnytjh@gmail.com) :)
+💼 any freelance work? do reach me at my 📫 [Email](mailto:dannnytjh@gmail.com) :)
 
 💬 Ask me about: Laravel, Flutter, Building Career In Tech, Tech Consultancy.
 
